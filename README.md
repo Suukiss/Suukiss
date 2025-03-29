@@ -1,6 +1,6 @@
 . . . hii !!
 
-♡ . You can call me Mika or Vesga. I speak Portuguese and understand Spanish and English very well!!
+♡ . You can call me Mika or Vesga!!
 
 ♡ . I accept c + h! <3 If I leave the game when you cuddle with me, it might be because I wasn't okay.
 

@@ -1,6 +1,6 @@
 ˚ ⠀▒⠀₊ ⠀⠀mika⠀/⠀vesga ⠀ ⠀𑄹⠀  𓈒⠀  ֺ
 
-𓈒ֵ۫𓏼 ⠀ ⠀amo a croissant cookie & longan dragon⠀ ⠀ ⵿۪۫⏾ ⠀   ֺ ⠀  ୨ৎ ⠀ 
+𓈒ֵ۫𓏼 ⠀ ⠀amo a croissant cookie & longan dragon,,⠀ ⠀ ⵿۪۫⏾ ⠀   ֺ ⠀  ୨ৎ ⠀ 
 
 
 

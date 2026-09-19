@@ -1,6 +1,6 @@
-⠀ ⠀ ⠀ ⠀˚ ⠀▒⠀₊ ⠀⠀mika⠀/⠀time ⠀ ⠀𑄹⠀  𓈒⠀  ֺ
+˚ ⠀▒⠀₊ ⠀⠀mika⠀/⠀time ⠀ ⠀𑄹⠀  𓈒⠀  ֺ
 
-⠀ ⠀ ⠀ ⠀𓈒ֵ۫𓏼 ⠀ ⠀amo a Croissant cookie & Longan dragon⠀ ⠀ ⵿۪۫⏾ ⠀   ֺ ⠀  ୨ৎ ⠀ 
+𓈒ֵ۫𓏼 ⠀ ⠀amo a Croissant cookie & Longan dragon⠀ ⠀ ⵿۪۫⏾ ⠀   ֺ ⠀  ୨ৎ ⠀ 
 
 
 

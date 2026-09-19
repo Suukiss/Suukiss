@@ -2,7 +2,7 @@
 
 𓈒ֵ۫𓏼 ⠀ ⠀amo a Croissant cookie & Longan dragon⠀ ⠀ ⵿۪۫⏾ ⠀   ֺ ⠀  ୨ৎ ⠀ 
 
->🇧🇷<
+🇧🇷
 
 
 
